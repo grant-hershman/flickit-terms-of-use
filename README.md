@@ -27,6 +27,6 @@
 8. **Changes to these Terms**
    - We may modify these Terms of Use at any time. Changes will be posted here and take effect immediately upon posting.
 9. **Contact**
-    - If you have questions about these Terms, contact:
+    - If you have questions about these Terms, contact: <flickitmovieapp@gmail.com>
 
 Terms of Use last updated on: May 7th, 2025.
